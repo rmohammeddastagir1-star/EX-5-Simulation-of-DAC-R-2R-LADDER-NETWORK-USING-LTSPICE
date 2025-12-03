@@ -32,6 +32,8 @@
 
 <img width="1895" height="426" alt="image" src="https://github.com/user-attachments/assets/bd70abe8-fe15-456e-9601-66bf53c83026" />
 
+## CALCULATION:
+![WhatsApp Image 2025-12-03 at 14 09 51_dd6a16db](https://github.com/user-attachments/assets/ba1203e6-bcc6-4a67-b4e7-3925c0f2ba09)
 
 ---
 ##RESULT:
